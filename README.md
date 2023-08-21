@@ -9,7 +9,7 @@ Zehai                  zehai.wen@umontreal.ca
 
 Tommy
 
-Yue
+Yue                    yue4zhang@hec.ca
 
 Earnest
 
